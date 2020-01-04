@@ -1,6 +1,6 @@
-# Alugue um apartamento em Jundiaí
+# Apartamento em Jundiaí
 
-Apartamento na rua União no condomínio Maraville Nature em Jundiaí
+Locação EXCLUSIVA [QuintoAndar](https://www.quintoandar.com.br/). Apartamento na rua União no condomínio Maraville Nature em Jundiaí
 
 **Oportunidade para estudantes e profissionais de outras cidades**
 
