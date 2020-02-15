@@ -5,7 +5,8 @@ Apartamento na rua União no condomínio Maraville Nature em Jundiaí
 **Oportunidade para estudantes e profissionais de outras cidades**
 
 * Pronto para entrar e morar:
-  * Possui geladeira, fogão, máquina de lavar, muitos armários, cadeira de escritório e cama de casal na suíte.
+  * Possui geladeira, fogão, máquina de lavar, muitos armários, cadeira e armário de escritório e cama de casal na suíte.
+  * Semi decorado com um baú, quadro, cortinas, ...
 * Traga alguns puffs e suas fotos e seu cafofo em Jundiaí está mobiliado.
 
 O condomínio oferece lazer completo. Está próximo da Av. 9 de Julho, do Shopping Jundiaí e das rodovias Anhanguera e Bandeirantes; de escolas, faculdades, mercados, posto de saúde e hospitais. Fretado na porta para São Paulo e Alphaville. Ônibus da Cometa para São Paulo a cada 30 minutos.
